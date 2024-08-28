@@ -1,1 +1,1 @@
-# KNUWFKICT SOPSOP 🟥FlipMaster🟦 #
+# 🟥FlipMaster🟦 #
