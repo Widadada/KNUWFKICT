@@ -1,1 +1,1 @@
-# KNUWFKICT KP01팀 SOPSOP 🟥FlipMaster🟦 #
+# KNUWFKICT SOPSOP 🟥FlipMaster🟦 #
